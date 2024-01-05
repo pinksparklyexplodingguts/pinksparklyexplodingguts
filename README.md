@@ -1,4 +1,4 @@
-☆~  haiii, I’m @pinksparklyexplodingguts/valentine :3
+☆~  haiii, I’m @pinksparklyexplodingguts/nazi-miku :3
 
 ☆~  i rlly like hello kitty and music, mostly city morgue and suicideboys >.<
 
