@@ -4,7 +4,7 @@
 
 ☆~  atm im in school so if you need smt i may not respond !
 
-☆~  id like to make an unblocked .net site for discord to mask that im doing work, i know a little about how to do it so pls msg me !!! :3
+☆~  id like to make an unblocked .net site for discord to mask that im doing work, i know a lil about how to do it so pls msg me !!! :3
 
 ☆~  my discord is vvaurii <3
 
